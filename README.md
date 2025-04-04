@@ -25,5 +25,4 @@ Email: ianderson@empleados.fba.unlp.edu.ar
 Google Scholar: https://scholar.google.com/citations?user=mXD4RFUAAAAJ&hl=en
 ResearchGate: https://www.researchgate.net/profile/Ibar-Anderson
 Academia.edu: https://unlp.academia.edu/IbarFedericoAnderson
-LinkedIn: (Agrega tu perfil de LinkedIn si está disponible)
 Saludos 😄 

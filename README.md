@@ -1,6 +1,4 @@
-👋 Hola, soy @ibarfedericoanderson
-🎓 Investigador y Diseñador Industrial
-Soy Ibar Federico Anderson , investigador académico y diseñador industrial afiliado a la Universidad Nacional de La Plata (UNLP) 
+👋 Hola, soy Ibar Federico Anderson 🎓 Investigador y Diseñador Industrial, investigador académico y diseñador industrial afiliado a la Universidad Nacional de La Plata (UNLP) y sus revistas como "Tableros" y la revista "Cuadernos" de la Universidad de Palermo (UP). 
 . Mi trabajo se centra en campos interdisciplinarios como el Diseño Industrial, Mecatrónica, Ecodiseño, Diseño de Mobiliario y Arte . Me apasiona combinar creatividad y funcionalidad a través de metodologías innovadoras de diseño.
 
 🌟 Sobre mí
